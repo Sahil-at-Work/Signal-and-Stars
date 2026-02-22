@@ -201,6 +201,7 @@ This is where real engineering failures begin.
 **Frequency domain is a lens that reveals hidden structure in signals.**
 
 ```
+```
 
 
 
