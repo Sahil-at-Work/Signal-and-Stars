@@ -444,3 +444,76 @@ If you want next, I can provide:
 ✅ Assignment questions for students
 
 Just tell me 👍
+
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
+If you want next, I can provide:
+
+✅ Episode 3 lecture script (Sampling mistakes)
+✅ Practical 3 aliasing demo
+✅ Ready Colab notebook template
+✅ Visual overlays for editing
+✅ Assignment questions for students
+
+Just tell me 👍
